@@ -1,1 +1,0 @@
-evaluación naming
